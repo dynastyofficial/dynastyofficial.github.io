@@ -1,1 +1,1 @@
-# dynastyofficial.github.io
+# Dynasty
